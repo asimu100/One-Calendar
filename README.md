@@ -211,4 +211,4 @@ One Calendar is available as a **full free version** with all features and updat
 Don't wait! **Download One Calendar for free today** and take control of your schedule like never before!
 
 ---
-**Last updated:** 2026-09-30 21:16:16 UTC
+**Last updated:** 2026-10-01 01:07:06 UTC
